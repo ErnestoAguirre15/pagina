@@ -1,0 +1,2 @@
+# pagina
+ tipos de juegos 
